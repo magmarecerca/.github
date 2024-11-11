@@ -1,3 +1,5 @@
+![magma_tots_2021](https://github.com/user-attachments/assets/997d34a6-04ca-4757-9b84-fab1c7dcc90c)
+
 # MAGMA, Associació per Promoure la Recerca Jove
 
 MAGMA, Associació per Promoure la Recerca Jove is a Catalan non-profit organization, founded in 1999, aiming to promote the passion for research among young people and the exchange of experiences with similar associations of national and international nature. To carry it out, we organize national and international activities such as Exporecerca Jove, a research fair for young people from 12 to 19 years old, celebrated annually in Barcelona.
